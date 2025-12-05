@@ -1,8 +1,12 @@
-# SUPER_DUO
-SALUT MARCO
-
-TU CREES DES CONFLITS PTITS BATARD
-
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-salut
-
+         o                  o                  o                  o                  o                  o                  o                  o                  o                  o                  o         
+        <|>                <|>                <|>                <|>                <|>                <|>                <|>                <|>                <|>                <|>                <|>        
+        / \                / \                / \                / \                / \                / \                / \                / \                / \                / \                / \        
+      o/   \o            o/   \o            o/   \o            o/   \o            o/   \o            o/   \o            o/   \o            o/   \o            o/   \o            o/   \o            o/   \o      
+     <|__ __|>          <|__ __|>          <|__ __|>          <|__ __|>          <|__ __|>          <|__ __|>          <|__ __|>          <|__ __|>          <|__ __|>          <|__ __|>          <|__ __|>     
+     /       \          /       \          /       \          /       \          /       \          /       \          /       \          /       \          /       \          /       \          /       \     
+   o/         \o      o/         \o      o/         \o      o/         \o      o/         \o      o/         \o      o/         \o      o/         \o      o/         \o      o/         \o      o/         \o   
+  /v           v\    /v           v\    /v           v\    /v           v\    /v           v\    /v           v\    /v           v\    /v           v\    /v           v\    /v           v\    /v           v\  
+ />             <\  />             <\  />             <\  />             <\  />             <\  />             <\  />             <\  />             <\  />             <\  />             <\  />             <\ 
+                                                                                                                                                                                                                 
+                                                                                                                                                                                                                 
+                                                                                                                                                                                                                 
